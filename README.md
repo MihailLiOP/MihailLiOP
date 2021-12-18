@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MihailLiOP or Michael Libert ;
+- 👀 I'm interested in programming, management and staff management ;
+- 🌱 I'm currently learning in the direction of cooperative management in the field of business management and information security in government structures ;
+- 💞️ I'm looking to collaborate on the field of personnel management or organization of certain activities ;
+- 📫 You can get in touch with me using social networks VKontakte or Discord ;
